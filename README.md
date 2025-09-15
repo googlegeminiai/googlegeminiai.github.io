@@ -1,1 +1,0 @@
-# googlegeminiai.github.io
